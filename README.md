@@ -13,6 +13,7 @@ $\color{#56c9ad}\ \tiny\ {\textsf{i don't like flameknight and soulbasket}}$ <br
 $\color{#0c5cb3}\ \tiny\ {\textsf{read}}$  <sup> <a href="https://offend.straw.page">offend.straw.page</a> </sup> $\color{#0c5cb3}\ \tiny\ {\textsf{byi ok it has more stuff}}$ <br> 
 
 <img src="https://file.garden/aLHRR3pySU2VReE4/soul.png" width="220" align="right"><img src="https://files.catbox.moe/2wgxde.png" width="370" align="right" > 
-
+<br> <br> <br> <br> <br> <br> <br> <br> <br> <br> 
+<p align="left"> $\color{#a8a8a8}\ \tiny\ {\textsf{this is only for pc view}}$ </p>
 
 </div>
