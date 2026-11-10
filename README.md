@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://files.catbox.moe/7nphzb.png" width="405"> <br>
+  <img src="https://files.catbox.moe/7nphzb.png" width="380"> <br>
  
 $\color{#0c5cb3}\ \tiny\ {\textsf{dont try to involve me in random dramas that idgaf about}}$ <br>
 $\color{#56c9ad}\ \tiny\ {\textsf{dandys world fandom iwec}}$ <br>
@@ -12,7 +12,7 @@ $\color{#56c9ad}\ \tiny\ {\textsf{i don't like flameknight and soulbasket}}$ <br
 
 $\color{#0c5cb3}\ \tiny\ {\textsf{read}}$  <sup> <a href="https://offend.straw.page">offend.straw.page</a> </sup> $\color{#0c5cb3}\ \tiny\ {\textsf{byi ok it has more stuff}}$ <br> 
 
-<img src="https://file.garden/aLHRR3pySU2VReE4/soul.png" width="220" align="right"> <br><img src="https://files.catbox.moe/2wgxde.png" width="405" align="right" > 
+<img src="https://file.garden/aLHRR3pySU2VReE4/soul.png" width="220" align="right"> <br><img src="https://files.catbox.moe/2wgxde.png" width="380" align="right" > 
 
 
 </div>
