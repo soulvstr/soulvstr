@@ -7,7 +7,7 @@ $\color{#1c5f7d}\ \tiny\ {\textsf{dont ask to be friends im not looking for frie
 $\color{#56c9ad}\ \tiny\ {\textsf{i speak english turkish and portuguese}}$ <br>
 $\color{#1c5f7d}\ \tiny\ {\textsf{would appreciate if you speak english while talking to me}}$ <br>
 $\color{#56c9ad}\ \tiny\ {\textsf{roleplayers feel free to int as your rp characters}}$ <br>
-$\color{#1c5f7d}\ \tiny\ {\textsf{just make you i know you're roleplaying}}$ <br>
+$\color{#1c5f7d}\ \tiny\ {\textsf{just make sure i know you're roleplaying}}$ <br>
 $\color{#56c9ad}\ \tiny\ {\textsf{i don't like flameknight and soulbasket}}$ <br>
 
 $\color{#1c5f7d}\ \tiny\ {\textsf{read}}$  <sup> <a href="https://offend.straw.page">offend.straw.page</a> </sup> $\color{#1c5f7d}\ \tiny\ {\textsf{byi ok it has more stuff}}$ <br> 
