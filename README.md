@@ -9,6 +9,8 @@ $\color{#1c5f7d}\  {\textsf{would appreciate if you speak english while talking 
 $\color{#56c9ad}\  {\textsf{roleplayers feel free to int as your rp characters}}$ <br>
 $\color{#1c5f7d}\  {\textsf{just make sure i know you're roleplaying}}$ <br>
 $\color{#56c9ad}\  {\textsf{i don't like flameknight and soulbasket}}$ <br>
+$\color{#1c5f7d}\  {\textsf{don't sit with me for ship stuff idek how this works??}}$ <br>
+$\color{#56c9ad}\  {\textsf{c+h is fine anytime as long as im sitting alone}}$ <br>
 
 $\color{#1c5f7d}\  {\textsf{read}}$   <a href="https://offend.straw.page">offend.straw.page</a>  $\color{#1c5f7d}\  {\textsf{byi ok it has more stuff}}$ <br> 
 
