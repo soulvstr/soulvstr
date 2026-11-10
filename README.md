@@ -1,16 +1,16 @@
 <div align="center">
   <img src="https://files.catbox.moe/7nphzb.png" width="380"> <br>
  
-$\color{#1c5f7d}\ \tiny\ {\textsf{dont try to involve me in random dramas that idgaf about}}$ <br>
-$\color{#56c9ad}\ \tiny\ {\textsf{dandys world fandom iwec}}$ <br>
-$\color{#1c5f7d}\ \tiny\ {\textsf{dont ask to be friends im not looking for friends}}$ <br>
-$\color{#56c9ad}\ \tiny\ {\textsf{i speak english turkish and portuguese}}$ <br>
-$\color{#1c5f7d}\ \tiny\ {\textsf{would appreciate if you speak english while talking to me}}$ <br>
-$\color{#56c9ad}\ \tiny\ {\textsf{roleplayers feel free to int as your rp characters}}$ <br>
-$\color{#1c5f7d}\ \tiny\ {\textsf{just make sure i know you're roleplaying}}$ <br>
-$\color{#56c9ad}\ \tiny\ {\textsf{i don't like flameknight and soulbasket}}$ <br>
+$\color{#1c5f7d}\  {\textsf{dont try to involve me in random dramas that idgaf about}}$ <br>
+$\color{#56c9ad}\  {\textsf{dandys world fandom iwec}}$ <br>
+$\color{#1c5f7d}\  {\textsf{dont ask to be friends im not looking for friends}}$ <br>
+$\color{#56c9ad}\  {\textsf{i speak english turkish and portuguese}}$ <br>
+$\color{#1c5f7d}\  {\textsf{would appreciate if you speak english while talking to me}}$ <br>
+$\color{#56c9ad}\  {\textsf{roleplayers feel free to int as your rp characters}}$ <br>
+$\color{#1c5f7d}\  {\textsf{just make sure i know you're roleplaying}}$ <br>
+$\color{#56c9ad}\  {\textsf{i don't like flameknight and soulbasket}}$ <br>
 
-$\color{#1c5f7d}\ \tiny\ {\textsf{read}}$  <sup> <a href="https://offend.straw.page">offend.straw.page</a> </sup> $\color{#1c5f7d}\ \tiny\ {\textsf{byi ok it has more stuff}}$ <br> 
+$\color{#1c5f7d}\  {\textsf{read}}$   <a href="https://offend.straw.page">offend.straw.page</a>  $\color{#1c5f7d}\  {\textsf{byi ok it has more stuff}}$ <br> 
 
 <img src="https://file.garden/aLHRR3pySU2VReE4/soul.png" width="220" align="right"><img src="https://files.catbox.moe/2wgxde.png" width="370" align="right" > 
 <br> <br> <br> <br> <br> <br> <br> <br> <br> <br> 
